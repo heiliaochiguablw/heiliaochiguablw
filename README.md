@@ -10,7 +10,7 @@
 
 新地址获取方法一： 发送任意内容至 911blcgw@gmail.com
 
-新地址获取方法二： https://github.com/noocgbl123 
+新地址获取方法二： https://github.com/heiliaochiguablw
 
 tg投稿：https://t.me/hlgf6<br>
 唯一商务合作：https://t.me/hlgf6<br>
