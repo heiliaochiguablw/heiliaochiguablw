@@ -2,11 +2,11 @@
 
 911爆料最新地址（07/22更新）
 
-免翻墙入口：https://bl20.co
-永久主页需翻墙：https://hlj.fun
-官方分享扣群：[点击加入](http://c.wiwji52.cn/s/VnSe)
-官方推特：https://twitter.com/baoliaochigua
-官方电报（telegram）群：https://t.me/bbllccgg
+免翻墙入口：https://bl20.co<br>
+永久主页需翻墙：https://hlj.fun<br>
+官方分享扣群：[点击加入](http://c.wiwji52.cn/s/VnSe)<br>
+官方推特：https://twitter.com/baoliaochigua<br>
+官方电报（telegram）群：https://t.me/bbllccgg<br>
 
 新地址获取方法一： 发送任意内容至 911blcgw@gmail.com
 
