@@ -3,8 +3,8 @@
 
 911爆料最新地址（08/16更新）
 
-免翻墙入口：https://blw09.com<br>
-备用入口：https://blw08.com<br>
+免翻墙入口：https://gua3.fun<br>
+备用入口：https://gua2.fun<br>
 永久主页需翻墙：[https://hlj.fun](https://www.hlj.fun)<br>
 官方分享扣群：[点击加入](http://c.wiwji52.cn/s/VnSe)<br>
 官方推特：https://twitter.com/baoliaochigua<br>
