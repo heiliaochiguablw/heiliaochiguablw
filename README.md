@@ -3,8 +3,8 @@
 
 911爆料最新地址（09/30更新）
 
-免翻墙入口：[ablw12.com](https://ablw12.com)<br>
-备用入口：[ablw11.com](https://ablw11.com)<br>
+免翻墙入口：[ablw13.com](https://ablw13.com)<br>
+备用入口：[ablw12.com](https://ablw12.com)<br>
 永久主页需翻墙：[hlj.fun](https://www.hlj.fun)<br>
 官方分享扣群：[点击加入](http://c.wiwji52.cn/s/VnSe)<br>
 官方推特：https://twitter.com/hlcg_mrds666<br>
