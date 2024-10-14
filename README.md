@@ -1,9 +1,9 @@
 - 👋 Hi, 这里是 911爆料-黑料吃瓜网 吃瓜有理 爆料无罪
 致力于为大家提供最新的吃瓜黑料，曝光各种不为人知
 
-911爆料最新地址（10/13更新）
+911爆料最新地址（10/14更新）
 
-免翻墙入口：[ablw15.com](https://ablw15.com)<br>
+免翻墙入口：[ablw16.com](https://ablw16.com)<br>
 备用入口：[ablw12.com](https://ablw12.com)<br>
 永久主页需翻墙：[hlj.fun](https://www.hlj.fun)<br>
 官方分享扣群：[点击加入](http://c.wiwji52.cn/s/VnSe)<br>
