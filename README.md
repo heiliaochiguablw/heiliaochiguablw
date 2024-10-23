@@ -5,6 +5,7 @@
 
 免翻墙入口：[ablw22.com](https://ablw22.com)<br>
 备用入口：[ablw21.com](https://ablw21.com)<br>
+永久回家地址：[911blw.com](https://911blw.com)<br>
 永久主页需翻墙：[hlj.fun](https://www.hlj.fun)<br>
 官方分享扣群：[点击加入](http://c.wiwji52.cn/s/VnSe)<br>
 官方推特：https://twitter.com/cgblw01fun<br>
