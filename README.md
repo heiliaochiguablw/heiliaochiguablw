@@ -1,10 +1,10 @@
 - 👋 Hi, 这里是 911爆料-黑料吃瓜网 吃瓜有理 爆料无罪
 致力于为大家提供最新的吃瓜黑料，曝光各种不为人知
 
-911爆料最新地址（11/5更新）
+911爆料最新地址（11/7更新）
 
-免翻墙入口：[ablw30.com](https://ablw30.com)<br>
-备用入口：[ablw29.com](https://ablw29.com)<br>
+免翻墙入口：[iblw01.com](https://iblw01.com)<br>
+备用入口：[iblw02.com](https://iblw02.com)<br>
 永久回家地址：[911blw.com](https://911blw.com)<br>
 永久主页需翻墙：[hlj.fun](https://www.hlj.fun)<br>
 官方分享扣群：[点击加入](http://c.wiwji52.cn/s/VnSe)<br>
