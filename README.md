@@ -7,7 +7,7 @@
 备用入口：[iblw03.com](https://iblw03.com)<br>
 永久回家地址：[911blw.com](https://911blw.com)<br>
 永久主页需翻墙：[hlj.fun](https://www.hlj.fun)<br>
-官方分享扣群：[点击加入](http://c.wiwji52.cn/s/VnSe)<br>
+官方分享扣群：[点击加入](http://b.lmvdlmuk29.cn/s/VhxF)<br>
 官方推特：https://twitter.com/cgblw01fun<br>
 官方电报（telegram）群：https://t.me/bbllccgg<br>
 
