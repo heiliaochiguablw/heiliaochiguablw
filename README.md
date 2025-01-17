@@ -1,7 +1,7 @@
 - 👋 Hi, 这里是 911爆料-黑料吃瓜网 吃瓜有理 爆料无罪
 致力于为大家提供最新的吃瓜黑料，曝光各种不为人知
 
-911爆料最新地址（1/12更新）
+911爆料最新地址（1/172更新）
 
 免翻墙入口：[iblw18.com](https://iblw18.com)<br>
 备用入口：[iblw15.com](https://iblw15.com)<br>
@@ -13,7 +13,6 @@
 
 新地址获取方法一： 发送任意内容至 911blcgw@gmail.com
 
-新地址获取方法二： https://github.com/heiliaochiguablw
+新地址获取方法二： https://github.com/heiliaochiguablw<br>
+新地址获取方法三： https://gitlab.com/hljfun/blwcom<br>
 
-唯一商务合作：https://t.me/hlgf6<br>
-广纳人才详情请官网“加入我们”查看请联系唯一tg号：https://t.me/hlgf6<br>
