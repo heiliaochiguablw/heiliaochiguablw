@@ -3,7 +3,7 @@
 
 911爆料最新地址（02/05更新）
 
-免翻墙入口：[iblw23.com](https://iblw23.com)<br>
+免翻墙入口：[iblw24.com](https://iblw24.com)<br>
 备用入口：[iblw18.com](https://iblw18.com)<br>
 永久回家地址：[911blw.com](https://911blw.com)<br>
 永久主页需翻墙：[hlj.fun](https://www.hlj.fun)<br>
