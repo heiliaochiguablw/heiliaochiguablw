@@ -3,7 +3,7 @@
 
 911爆料最新地址（02/18更新）
 
-免翻墙入口：[hljcg07.com](https://hljcg07.com)<br>
+免翻墙入口：[hljcg08.com](https://hljcg08.com)<br>
 备用入口：[hljcg04.com](https://hljcg04.com)<br>
 永久回家地址：[911blw.com](https://911blw.com)<br>
 永久主页需翻墙：[hlj.fun](https://www.hlj.fun)<br>
