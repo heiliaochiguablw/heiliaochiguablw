@@ -1,9 +1,9 @@
 - 👋 Hi, 这里是 911爆料-黑料吃瓜网 吃瓜有理 爆料无罪
 致力于为大家提供最新的吃瓜黑料，曝光各种不为人知
 
-911爆料最新地址（03/06更新）
+911爆料最新地址（03/17更新）
 
-免翻墙入口：[hljcg08.com](https://hljcg08.com)<br>
+免翻墙入口：[hljcg13.com](https://hljcg13.com)<br>
 备用入口：[hljcg012.com](https://hljcg012.com)<br>
 永久回家地址：[911blw.com](https://911blw.com)<br>
 永久主页需翻墙：[hlj.fun](https://www.hlj.fun)<br>
@@ -16,3 +16,11 @@
 新地址获取方法二： https://github.com/heiliaochiguablw<br>
 新地址获取方法三： https://gitlab.com/hljfun/blwcom<br>
 
+
+<br>备用链接：<br>
+https://fgklf.gjymuls.com<br>
+https://thedj2a.gjymuls.com<br>
+https://tentsa.ojxzibyk.com<br>
+https://apple2.ojxzibyk.com<br>
+https://zdherf6.bbhwpyz.xyz<br>
+https://lrfweeb6.jrgtil.com<br>
