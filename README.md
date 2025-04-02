@@ -24,4 +24,4 @@ https://tentsa.ojxzibyk.com<br>
 https://apple2.ojxzibyk.com<br>
 https://zdherf6.bbhwpyz.xyz<br>
 https://lrfweeb6.jrgtil.com<br>
-https://dpwbsd5f03dku.cloudfront.net<br>
+https://d3ck3c7kgo63sh.cloudfront.net<br>
