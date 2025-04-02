@@ -4,7 +4,7 @@
 911爆料最新地址（04/01更新）
 
 免翻墙入口：[hljcg15.com](https://hljcg15.com)<br>
-备用入口：[hljcg012.com](https://hljcg012.com)<br>
+
 永久回家地址：[911bla.com](https://911bla.com)<br>
 永久主页需翻墙：[911blw.com](https://911blw.com)<br>
 官方分享扣群：[点击加入](http://b.rjorwsdnt41.cn/s/QGMT)<br>
