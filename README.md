@@ -8,7 +8,7 @@
 
 - 🌐 主站地址： [911blw.com](https://911blw.com)
 - 🚪 备用入口： [911bla.com](https://911bla.com)
-- 🛰️ 免翻跳转： [hljcg16.com](https://hljcg16.com)
+- 🛰️ 免翻跳转： [911bl01.com](https://911bl01.com)
 
 ---
 
@@ -41,4 +41,4 @@ https://tensa.ojxipbyk.com
 https://apple2.ojxipbyk.com
 https://rzdrher6.bbhwypz.xyz
 https://lrtweb86.jrgtll.com
-https://d3ck3c7kgo63sh.cloudfront.net
+https://wikia.hzllrrr.cc
