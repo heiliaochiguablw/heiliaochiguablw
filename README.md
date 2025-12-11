@@ -8,7 +8,7 @@
 
 - 🌐 主站地址： [911blw.com](https://911blw.com)
 - 🚪 备用入口： [911bla.com](https://911bla.com)
-- 🛰️ 免翻跳转： [911cg10.com](https://911cg10.com)
+- 🛰️ 免翻跳转： [911cg11.com](https://911cg11.com)
 - 📱 最新APP下载：https://fb0.wxgkzws.cc/
 
 ---
@@ -28,18 +28,8 @@
 
 ## 📢 官方社群
 
-- Twitter 推广号：[@911bl22](https://twitter.com/911bl22)
+- Twitter 推广号：[@911bl22](https://twitter.com/zhaopian007)
 - Telegram 公告群：[@bl_911_co](https://t.me/bl_911_co)
 
 ---
 
-## 🧰 备用通道推荐（部分可能需翻墙）
-
-```text
-https://gfqlkf.giymuls.com
-https://thedj2a.giymuls.com
-https://tensa.ojxipbyk.com
-https://apple2.ojxipbyk.com
-https://rzdrher6.bbhwypz.xyz
-https://lrtweb86.jrgtll.com
-https://wikia.hzllrrr.cc
