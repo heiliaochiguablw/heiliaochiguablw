@@ -8,7 +8,7 @@
 
 - 🌐 主站地址： [911bl.com](https://911bl.com)
 - 🚪 备用入口： [911bla.com](https://911bla.com)
-- 🛰️ 免翻跳转： [911blw10.com](https://911blw10.com)
+- 🛰️ 免翻跳转： [911blw15.com](https://911blw15.com)
 - 📱 最新APP下载：https://www.exvfpme.cc/
 
 ---
