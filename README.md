@@ -8,8 +8,8 @@
 
 - 🌐 主站地址： [911bl.com](https://911bl.com)
 - 🚪 备用入口： [911bla.com](https://911bla.com)
-- 🛰️ 免翻跳转： [911blw16.com](https://911blw16.com)
-- 📱 最新APP下载：https://www.kxvckew.cc/
+- 🛰️ 免翻跳转： [911blw18.com](https://911blw18.com)
+- 📱 最新APP下载：https://7c9de.immiwuse.cc/
 
 ---
 
