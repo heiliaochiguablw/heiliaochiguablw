@@ -9,7 +9,7 @@
 - 🌐 主站地址： [911bl.com](https://911bl.com)
 - 🚪 备用入口： [911bla.com](https://911bla.com)
 - 🛰️ 免翻跳转： [911bl30.com](https://911bl30.com)
-- 📱 最新APP下载：https://ecc72.zyvptjfgx.cc/
+- 📱 最新APP下载：https://ecc72.edxjxfrm.cc/
 
 ---
 
