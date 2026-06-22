@@ -8,7 +8,7 @@
 
 - 🌐 主站地址： [911bl.com](https://911bl.com)
 - 🚪 备用入口： [911bla.com](https://911bla.com)
-- 🛰️ 免翻跳转： [911hl5.com](https://911hl5.com)
+- 🛰️ 免翻跳转： [911hl6.com](https://911hl6.com)
 - 📱 最新APP下载：https://www.jruosopmi.cc/
 
 ---
