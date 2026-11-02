@@ -8,8 +8,8 @@
 
 - 🌐 主站地址： [blw66.com](https://blw66.com)
 - 🚪 备用入口： [911bla.com](https://911bla.com)
-- 🛰️ 免翻跳转： [911aa15.com](https://911aa15.com)
-- 📱 最新APP下载：https://www.zvtxisqg.cc/
+- 🛰️ 免翻跳转： [911aa18.com](https://911aa18.com)
+- 📱 最新APP下载：https://www.lqcxyiuf.cc/
 
 ---
 
